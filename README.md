@@ -57,4 +57,4 @@ Estoy buscando oportunidades **Junior en AI Automation, automatización de proce
 ## 📫 Contacto
 
 - 💼 LinkedIn: [Jorge Hernández](https://www.linkedin.com/in/jorge-irene-hernandez-mendoza-2754912b8/)
-- 📧 Email: [tu correo aquí]
+- 📧 Email: [jorge.irenehm@gmail.com]
